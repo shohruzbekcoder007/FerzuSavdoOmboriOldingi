@@ -1,0 +1,2 @@
+# FerzuSavdoOmboriOldingi
+Distributorlik firmasining oldingi versiyasi
